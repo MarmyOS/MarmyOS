@@ -17,9 +17,6 @@ If you ever want to reach out, you can email me at martinsoplayz@gmail.com
 Fun facts:
 
 • I’m passionate about tech and always improving myself
-
 • I enjoy exploring different areas in IT
-
 • I like building things from scratch and learning by doing
-
 • Hobbies : gym,sports,building things
